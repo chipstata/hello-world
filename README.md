@@ -1,2 +1,3 @@
 # hello-world
-Following the tutorial
+
+exists at the junction of chaos and conscious intention
